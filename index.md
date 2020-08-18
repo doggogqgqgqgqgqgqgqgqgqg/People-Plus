@@ -1,18 +1,3 @@
-Huh? How did you get here you seem lost in a endless loop of time. We're joking your at Ding-Ding.xyz.
+A great discord bot you should invite.
 
-Add me on discord Ding Ding#3159
-
-Also
-
-
-THIS SITE IS WORK IN PROGRESSS
-
-
-
-
-
-
-████▄░░██░██▄░██░░▄███▄░░░░░████▄░░██░██▄░██░▄████▄░░░░██▄░▄██░██▄░░▄██░█████
-██░▀██░██░███▄██░██▀░▀▀░░░░░██░▀██░██░███▄██░██▀░▀▀░░░░░▀███▀░░░▀████▀░░░░▄█▀
-██░▄██░██░██▀███░██▄▀██░▀▀▀░██░▄██░██░██▀███░██▄▀██░░░░░▄███▄░░░░░██░░░░▄█▀░░
-████▀░░██░██░░██░░▀███▀░░░░░████▀░░██░██░░██░▀███▀░██░░██▀░▀██░░░░██░░░░█████
+DEMO
